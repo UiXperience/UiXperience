@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Indhu
+- 👋 Hi, I'm Indhu – a UI/UX Designer, curious creator, and passionate problem-solver
 - 👀 I’m interested in designing user friendly designs with craetive solutions
 - 🌱 I’m currently learning UX and Photoshop
 - 💞️ I’m looking to collaborate on Designers
