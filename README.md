@@ -1,7 +1,7 @@
 - 👋 Hi, I'm Indhu – a UI/UX Designer, curious creator, and passionate problem-solver
 - 👀 I’m interested in designing user friendly designs with craetive solutions
 - 🌱 I’m currently learning UX and Photoshop
-- 💞️ I’m looking to collaborate on Designers
+- 💞️ I’m looking to collaborate with Designers
 - 📫 How to reach me **uixperiencebyindhu@gmail.com**
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I am a Creative Designer, Photographer, and a Plant Mom
